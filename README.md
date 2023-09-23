@@ -6,7 +6,7 @@
 - Мой любимый цвет-розовый
 - Часто смотрю YouTube
   
-![Это я](https://wampi.ru/image/Yc65WSO)
+![Это я](https://i.postimg.cc/L8zJQJsz/image.jpg)
 
 Ссылка на мой профиль [VK](https://vk.com/linalovestore)
 
